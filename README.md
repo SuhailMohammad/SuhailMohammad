@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about Anything
-- 📫 How to reach me: [Instagram](https://www.instagram.com/s25uhail_ins/)
+- 📫 How to reach me: [Instagram @s25_uhail.ins](https://www.instagram.com/s25uhail_ins/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Fast Learner
 -->
